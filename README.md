@@ -1,0 +1,1 @@
+This week seems to be more terrifying than the rest.. I wish us all good luck
